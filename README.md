@@ -1,2 +1,2 @@
-# <b>KERALA</b>
-<b>Gods Own Contry</b>
+# **KERALA
+Gods Own Contry
